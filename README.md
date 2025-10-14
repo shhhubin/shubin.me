@@ -1,1 +1,1 @@
-# shubin.me
+# Click: https://shubin.co/
